@@ -1,1 +1,1 @@
-# CSGO
+# Student
